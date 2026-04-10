@@ -1,1 +1,1 @@
-hope you are having a great Friday! Just checking in to see if there is any update regarding the req. I know you mentioned these approvals can take some time, just wanted to gently follow up on my end. Have a good weekend!
+Hi Juan! Reaching out because Pradeep let me know you are driving the process for his iOS req. Just checking in to see if there is any update regarding the req. Pradeep mentioned these approvals can take some time, just wanted to gently follow up on my end. Have a good weekend!
